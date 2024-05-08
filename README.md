@@ -52,4 +52,4 @@ With a keen eye for detail and a passion for data-driven solutions, I thrive in 
 
 I'm passionate about leveraging data to drive meaningful change and am always eager to tackle new challenges. Let's connect and explore how we can leverage data to achieve your business goals! 
 
-Feel free to reach out via [email](mailto:youremail@example.com) or connect with me on [LinkedIn](https://www.linkedin.com/in/yourprofile). Let's turn data into insights together! 🚀
+Feel free to reach out via (ssnehal1715@gmail.com) or connect with me on [LinkedIn](https://www.linkedin.com/in/snehal-sutar-887279216/). Let's turn data into insights together! 🚀
